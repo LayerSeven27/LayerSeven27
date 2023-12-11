@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Solo el temor, sabe que la verdadera sabiduria, es para aquel guerrero que alcanza la gloria de superarla.
 <!--
 **LayerSeven27/LayerSeven27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
